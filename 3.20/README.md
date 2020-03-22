@@ -3,7 +3,6 @@
 ## 今日推荐歌单
 
 - [ ] 查斯特·贝宁顿-《In The End》、《Numb》、《What I'Ve Done》
-- [ ] 蕾恩卡·克莉帕克(澳大利亚爵士天后)-The Show、Trouble Is A Friend、Everything At Once
 
 ## 今日推荐影片
 
